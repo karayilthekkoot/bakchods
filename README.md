@@ -1,2 +1,2 @@
 # bakchods
-The ever increasing backchods need a place to congregate. Let this be the seed. 
+The ever increasing bakchods need a place to congregate. Let this be the seed. 
